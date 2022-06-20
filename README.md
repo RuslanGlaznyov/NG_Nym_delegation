@@ -1,1 +1,1 @@
-# NG_Nym_delegation
+# BLESSRNG 🤞😆
